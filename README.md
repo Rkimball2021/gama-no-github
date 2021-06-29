@@ -1,2 +1,3 @@
 # gama-no-github 
-esse curso é incrivel
+Obrigada Stefani
+Esse curso é incrivel estou adorando! 
